@@ -3,3 +3,5 @@
 I want this pushed 
 
 I want this pushed too
+
+Merge conflict!
