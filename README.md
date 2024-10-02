@@ -10,4 +10,4 @@ Follow me on Instagram
 
 Follow me on Telegram
 
-Follow me on LinkedIn
+Follow me on LinkedIn - Mohammed Islam
